@@ -10,6 +10,8 @@ Der Film spielt in Paris. Die albanischen Gangster entführen junge Mädchen, um
 * brutal
 * gnadenlos
 
+## Information
+
 Als gebürtiger Nordire hat Neeson die britische und die irische Staatsbürgerschaft, die US-Staatsbürgerschaft erhielt er im August 2009s
 
 
