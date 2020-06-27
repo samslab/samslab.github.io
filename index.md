@@ -12,3 +12,11 @@ Der Film spielt in Paris. Die albanischen Gangster entführen junge Mädchen, um
 
 
 
+## Charakter Eigenschaften
+
+* zielgerichtet
+* Familienmensch
+* hartnäckig
+* gnadenlos
+
+
